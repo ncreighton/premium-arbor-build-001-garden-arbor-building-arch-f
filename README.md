@@ -1,0 +1,2 @@
+# premium-arbor-build-001-garden-arbor-building-arch-f
+Tired of losing track of your arbor measurements, material costs, and build steps across sticky notes and random files? The Garden Arbor Building &amp; Arch Frame Craft Hub turns your scattered ideas into a single, organized blueprint inside Notion.  This template solves the chaos of planning a garden arbor or arch frame project by providing a structur
